@@ -18,11 +18,11 @@ Họ từng là bạn học thời trung học, nhưng những hiểu lầm đã
 
 Việc đào sâu vào tâm lý nhân vật cũng tương tự như việc tìm hiểu văn hóa bản xứ khi bạn **học tiếng Trung**, nó mang lại cho bạn một bức tranh toàn cảnh và sâu sắc hơn.
 
-#### **H3: Ôn Dĩ Phàm - Bông Hồng Gai Mạnh Mẽ**
+#### **Ôn Dĩ Phàm - Bông Hồng Gai Mạnh Mẽ**
 
 Ôn Dĩ Phàm không phải là một nữ chính "bánh bèo" điển hình. Vẻ ngoài mong manh, dịu dàng của cô chỉ là lớp vỏ bọc cho một tâm hồn đầy sẹo. Cô phải đối mặt với áp lực từ gia đình, những tổn thương trong quá khứ và sự tự ti luôn đeo bám. Sự phát triển của nhân vật này là một hành trình tự chữa lành, học cách yêu thương bản thân trước khi mở lòng với người khác. Việc theo dõi những đoạn độc thoại nội tâm của cô, nếu có thể hiểu trực tiếp bằng tiếng Trung, sẽ giúp khán giả cảm nhận trọn vẹn hơn sự giằng xé và nghị lực phi thường của cô.
 
-#### **H3: Tang Diên - Chàng Trai Ấm Áp Ẩn Sau Vẻ Ngoài Lạnh Lùng**
+#### **Tang Diên - Chàng Trai Ấm Áp Ẩn Sau Vẻ Ngoài Lạnh Lùng**
 
 Trái ngược với hình ảnh "yêu nghiệt" hay trêu chọc người khác, Tang Diên thực chất là một người đàn ông trưởng thành, có trách nhiệm và vô cùng tinh tế. Cái hay của nhân vật này nằm ở "sự tương phản". Lời nói của anh có thể phũ phàng, nhưng hành động lại luôn thể hiện sự quan tâm tuyệt đối. Sự phức tạp trong tính cách của Tang Diên là một thử thách tuyệt vời cho kỹ năng nghe và suy luận, những kỹ năng cốt lõi khi bạn **học tiếng Trung**. Lời thoại của anh thường chứa đầy ẩn ý, và việc hiểu được những lớp nghĩa này trong nguyên tác sẽ mở ra một tầng cảm nhận hoàn toàn mới.
 
